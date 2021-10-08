@@ -1,3 +1,1 @@
-✨✨✨✨✨✨
- Comp Sci @UCD
-✨✨✨✨✨✨
+✨Comp Sci @UCD ✨
